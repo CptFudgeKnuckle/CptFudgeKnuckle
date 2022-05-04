@@ -3,7 +3,12 @@
 - 
 - 🌱 I’m currently learning ...to fix my game
 - 💞️ I’m looking to collaborate on ...ps4
-- 📫 How to reach me ...Cptfudgeknucle@gmail.com
+- 📫 How to reach me ... cpt_fudgeknuckle101@gmail.com
+- 
+
+
+
+
 - 
 
 <!---
